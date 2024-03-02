@@ -1,4 +1,4 @@
-### Olá, me chamo Daiane Destri👋
+### Olá, me chamo Daiane Destri e sou desenvolvedora👋
 
 - 🎓 Cursando o 6º período de TSI pela UTFPR
 
